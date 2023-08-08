@@ -10,6 +10,9 @@ First-year SEED scholar
 
 *MD Hoops*
 
+https://github.com/jhuskey2/data6website/assets/141763137/bc3ae118-1d09-425d-a832-73add9c78bed
+
+
 ![image](https://github.com/jhuskey2/data6website/assets/141763137/87cec980-3806-4541-bb56-9de9d01fa206)
 ^ this is Kristy 🂽
 
